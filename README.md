@@ -1,1 +1,1 @@
-![](https://media.discordapp.net/attachments/1167250746820018238/1167302224683225199/Screenshot_2023-10-26_at_10.19.56_PM.png?ex=654da1e9&is=653b2ce9&hm=daa78c41eb165752f4f05ec3b805d298c1bbc9cae66e46ff38f0092a30927175&=&width=928&height=928))
+![](https://media.discordapp.net/attachments/1167250746820018238/1167308535693066310/tuxpi.com.1698378432.jpg?ex=654da7ca&is=653b32ca&hm=370f5d9fbdd22fff1e5d649b717c517c759f94067051e308bd3f80d9f6deb53a&=&width=1000&height=1000)
