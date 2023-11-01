@@ -1,1 +1,1 @@
-![](https://images-ext-1.discordapp.net/external/t9v2IG_EXm3-LyjOBcBZfd0jViS5Z_75hSenish0Oc0/https/64.media.tumblr.com/c3bbdecc41e558283aaba4d333f13a0e/8a26fa0b6bc81acd-be/s1280x1920/0291659bffcd9838dbf915fb587629ab59b1430b.pnj?width=872&height=1058)
+![](https://media.discordapp.net/attachments/1167250746820018238/1169104865704816701/ezgif.com-resize_6.jpg?ex=655430c0&is=6541bbc0&hm=7e61474f8cd814966f596222ddd6a46f4736a253f0e3af249243a7576f0c6160&=&width=872&height=1060)
